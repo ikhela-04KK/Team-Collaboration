@@ -1,2 +1,2 @@
 # Team-Collaboration
-Collaboration between Abraham and Marc-Ephrem.
+C'est une collaboration pour la création, l'innovation dans divers projets.
